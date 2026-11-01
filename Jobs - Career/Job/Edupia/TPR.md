@@ -1,0 +1,2 @@
+**TPR — Total Physical Response**  
+A teaching technique (especially for young learners or beginners) where students respond to language with physical actions/movement instead of words — e.g., teacher says "stand up," "touch your nose," "jump," and students physically do it. It's used to teach vocabulary/commands in a fun, memorable way without relying on translation, and it's especially common in young learners' English classes like Edupia's.
